@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Diploma Engineering Courses**
 
-- 📫 How to reach me **rokybd096@gmail.com**
+- 📫 How to reach me **rokym476@gmail.com**
 
 - ⚡ Fun fact **I am funny😎**
 
